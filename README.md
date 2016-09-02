@@ -1,2 +1,2 @@
 # hello-wold
-Just another repository
+I'm a motorcyclist, writer and geek.
